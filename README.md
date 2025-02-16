@@ -35,7 +35,7 @@
 
 ### 📫 Connect with Me  
 
-🔗 [LinkedIn](www.linkedin.com/in/KhajavaliShaik1)   
+🔗 [LinkedIn](https://linkedin.com/in/KhajavaliShaik1)   
 
 ---
 
